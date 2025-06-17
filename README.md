@@ -1,0 +1,2 @@
+# GEN-AI-WORKSHOPP
+Day-2
